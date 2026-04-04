@@ -6,6 +6,8 @@ Former Senior Product Manager turned Growth and Ecommerce Consultant.
 
 ### Crowdfunding
 
+Kickstarter Expert Partner.
+
 Four $1M+ Kickstarter/Indiegogo campaigns:
 
 $1.92M Vezo 360 · $1.41M MonstaTek M1 · $1.32M Shrooly · $1.30M Cubbit
