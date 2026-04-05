@@ -5,14 +5,13 @@ Growth & Performance Strategist with 14+ years in product management, digital ma
 Former Senior Product Manager turned Growth and Ecommerce Consultant.
 
 ### Crowdfunding
-
-Kickstarter Expert Partner.
+Official Kickstarter Expert Partner (Funderce Agency). Former Crowdfunding Campaign Manager at a leading 100+ person agency (2019).
 
 Four $1M+ Kickstarter/Indiegogo campaigns:
 
-$1.92M Vezo 360 · $1.41M MonstaTek M1 · $1.32M Shrooly · $1.30M Cubbit
+$1.95M Vezo 360 · $1.41M MonstaTek M1 · $1.31M Shrooly · $1.24M Cubbit
 
-$9M+ raised total across managed and mentored campaigns. 750+ clients from 60 countries.
+$9M+ raised total across managed and mentored campaigns. 800+ entrepreneurs helped from 60 countries.
 
 ### Ecommerce
 
