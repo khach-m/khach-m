@@ -1,13 +1,11 @@
 # Khach Martirosyan
 
-Growth & Performance Strategist with 14+ years in product management, digital marketing, and CRO.
-
-Former Senior Product Manager turned Growth and Ecommerce Consultant.
+Former Senior Product Manager turned Growth & Performance Strategist with 14+ years in product management, digital marketing, and CRO.
 
 ### Crowdfunding
 Official Kickstarter Expert Partner (Funderce Agency). Former Crowdfunding Campaign Manager at a leading 100+ person agency (2019).
 
-Four $1M+ Kickstarter/Indiegogo campaigns:
+Led four $1M+ Kickstarter/Indiegogo campaigns:
 
 $1.95M Vezo 360 · $1.41M MonstaTek M1 · $1.31M Shrooly · $1.24M Cubbit
 
@@ -15,7 +13,7 @@ $9M+ raised total across managed and mentored campaigns. 800+ entrepreneurs help
 
 ### Ecommerce
 
-60+ Shopify stores optimized for revenue. Conversion audits, theme optimization, and data-driven growth strategy for stores with $10K+ monthly revenue.
+70+ Shopify stores optimized for revenue. Conversion audits, theme optimization, and data-driven growth strategy for stores with $10K+ monthly revenue.
 
 ### Product Management
 
