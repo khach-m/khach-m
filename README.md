@@ -9,11 +9,11 @@ Four $1M+ Kickstarter/Indiegogo campaigns managed and mentored:
 
 $1.92M Vezo 360 · $1.41M MonstaTek M1 · $1.32M Shrooly · $1.24M Cubbit
 
-$9M+ raised total across managed and mentored campaigns. 800+ entrepreneurs helped across 65 countries.
+$9M+ raised total across managed and mentored campaigns. 800+ entrepreneurs helped across 60+ countries.
 
 ### Ecommerce
 
-70+ stores optimized for conversions. Shopify Partner. Conversion audits on any platform, Shopify CRO, store builds and migrations, and Meta ads and email audits.
+70+ stores optimized for conversions, with $140K+ in documented extra monthly sales. Shopify Partner. Conversion audits on any platform, Shopify CRO, store builds and migrations, and Meta ads and email audits.
 
 ### Product Management
 
