@@ -1,5 +1,7 @@
 # Khach Martirosyan
 
+**Launch strategy and conversion engineering for product brands.** Battle-tested frameworks, reviews and builds to validate, launch and scale on Kickstarter, Indiegogo and Shopify.
+
 Former Senior Product Manager turned Growth & Performance Strategist with 14+ years in product management, digital marketing, and CRO.
 
 ### Crowdfunding
